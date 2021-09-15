@@ -1,5 +1,5 @@
 # Life-Skills_And_Mentoring 
 
-![DEPARTMENT OF MECHATRONICS ENGINEERING](https://www.cuchd.in/engineering/be-mechatronics.php)
+[DEPARTMENT OF MECHATRONICS ENGINEERING](https://www.cuchd.in/engineering/be-mechatronics.php)
 
 ## tHIS PAGE IS CREATED FOR THE PURPOSE OF GROOVING STUDENTS OF THE DEPARTMENT WITH LIFE SKILLS AND TO ADDRESS THEIR CONCERNS
